@@ -1,0 +1,1 @@
+# Omegamagentayt.github.io
